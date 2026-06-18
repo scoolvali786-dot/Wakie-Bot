@@ -1,2 +1,1 @@
-# Wakie-Bot
-Just to play songs and limited replies
+# eesari-aina-correct-account-tho-push-avvu
